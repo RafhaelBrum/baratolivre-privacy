@@ -20,7 +20,7 @@ A política de privacidade completa está disponível em: [privacy-policy.html](
 
 ## Atualizações
 
-**Última atualização:** 22 de dezembro de 2024
+**Última atualização:** 29 de agosto de 2025
 
 ## Contato
 
